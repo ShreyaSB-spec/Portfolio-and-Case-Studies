@@ -29,4 +29,4 @@ I build at the intersection of **Aesthetic Design** and **Agentic Engineering**.
 
 ### 📬 Connect with me
 * **Portfolio**: [buildsbyshreya.framer.ai](https://buildsbyshreya.framer.ai)
-* **LinkedIn**: [Shreya Bangale](https://www.linkedin.com/in/shreyabangale)
+* **LinkedIn**: [Shreya Bangale](https://www.linkedin.com/in/shreya-bangale/)
